@@ -6,4 +6,5 @@
 
 - 1kg de peito de frango
 - creme de leite sem soro
-- 
+- 3 colheres de sopa de ketchup
+- molho de tomate
