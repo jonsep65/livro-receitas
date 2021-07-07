@@ -8,3 +8,4 @@
 - creme de leite sem soro
 - 3 colheres de sopa de ketchup
 - molho de tomate
+- 3 colheres de mostarda
